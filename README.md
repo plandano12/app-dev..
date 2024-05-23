@@ -12,8 +12,8 @@ QUOTES
 3.	I Can't Live Your Dreams Anymore*
 4.	You Know Why We Can't Be Together*
 5.	My Best Friend, Who Cares So Much About Me, Can't Make An 8:00 Curtain*
-LINK
+###LINK
 [SpiderMan 2] (https://archive.org/details/spider.-man.-2.2004.1080p.-blu-ray.x-264.-yify_202112)
-IMAGE
+###IMAGE
 ![SpiderMan 2] (https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FSpider-Man_2&psig=AOvVaw3059rNdPvEoqHQWlwy1sIK&ust=1716524592689000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCOCz4cr2ooYDFQAAAAAdAAAAABAE)
 
